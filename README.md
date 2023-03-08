@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
+# Sobre mim
+## <19 anos> <Poá> <08/03/2004>
+Meu nome é **Ramom Baista da Silva**, e como construção para meu futuro, fiz vários cursos voltados a tecnologia envolvendo recursos,apps e conhecimentos sobre computação, e estou fazendo faculdade de TI em (engennharia da computação), Cursando ~~não concluído~~. Sobre meus interresses, procuro adquirir conhecimentos sobre Tecnologias envolvendo programação e outros complementos dessa área, e depois de estar preparado sobre o que aprendi, vou em busca de trabalho. 
+Sobre mim, sou uma pessoa que está perdendo a timidez, tendo os seguintes pontos: esforçado,organizado e procurando da maneira do meu possível ajudar as pessoas, sendo uma pessoa humilde. Já meus lazeres são praticar esportes, fazer exercícios em casa, jogar jogos eletrônicos e descansar um pouco. 
+Futuramente pretendo crescer e fazer meu futuro dentro dessas áreas de tecnologia e aprimorar meus conhecimentos.
